@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Avanteesh
-- 👀 I’m interested in Astronomy & science
+- 👀 I’m interested in Astronomy & science, bit of Programming
 - 🌱 I’m currently learning Astrophotography/Researching
 - 💞️ Check Out my Work On instagram id: deep_sky_hunter
 
